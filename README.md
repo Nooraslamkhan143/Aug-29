@@ -1,2 +1,2 @@
 # Aug-29
-Juts for learning 
+Justs for learning 
